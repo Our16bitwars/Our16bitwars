@@ -1,9 +1,7 @@
- # my soldiers!! <33 /j
+ # my soldiers!! <33 (they are coming for you trust)
  
  ![IMG_2248](https://github.com/user-attachments/assets/1110b85e-0a98-4fea-8ef2-23eb5caee0cd)
 
 
-# This can't be real..
+# This can't be real.. ![GIF画像](https://github.com/user-attachments/assets/5955fe0e-cfeb-4bec-8980-2fd814ac1fb7)
 
-
-![GIF画像](https://github.com/user-attachments/assets/ef74aba1-c4c7-4f53-b6f5-24173afd089c)
