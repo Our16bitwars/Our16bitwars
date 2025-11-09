@@ -1,6 +1,6 @@
 
 
-# My soldiers!! <3 /jk (ignore how messy this read.me is plz)
+# My soldiers!! <3  (ignore how messy this read.me is plz)
 
 ![IMG_2248](https://github.com/user-attachments/assets/984e5a66-2e6b-4a71-9d9f-d025ecf4c570)
 
