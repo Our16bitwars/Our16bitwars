@@ -5,6 +5,8 @@
 
 
 
+(I have 2 spotify thingys in case i want to remove one)
+
 ★
 
 # My soldiers!! <3  (ignore how messy this read.me is plz)
