@@ -1,3 +1,11 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=b93900&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
+
+
+
 "𝒕𝒉𝒆𝒏 𝒊 𝒘𝒊𝒔𝒉 𝒘𝒆 𝒄𝒐𝒖𝒍𝒅 𝒔𝒆𝒆 𝒆𝒂𝒄𝒉𝒐𝒕𝒉𝒆𝒓 𝒂𝒈𝒂𝒊𝒏."
 
 
