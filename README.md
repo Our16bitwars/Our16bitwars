@@ -1,6 +1,10 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=b93900&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d9c3c9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+
+
 ★
 
 # My soldiers!! <3  (ignore how messy this read.me is plz)
