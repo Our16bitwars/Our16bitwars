@@ -1,3 +1,12 @@
+![IMG_2002](https://github.com/user-attachments/assets/1ff024cb-ebfc-43f7-a2cb-b7d9cf798694)
+
+
+My gng 🥹
+@Kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy ♡ - 23.11
+
+
+
+
 ![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei+is+coming+closer)
 
 
