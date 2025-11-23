@@ -12,8 +12,7 @@
 ![IMG_2002](https://github.com/user-attachments/assets/1ff024cb-ebfc-43f7-a2cb-b7d9cf798694)
 
 
-My gng 🥹
-@kkaitoshion , @VULTUR3S , Miyu , @prisioner004 , izzy, @souilove- 22.11
+My gang... Teehehe
 
 
 
