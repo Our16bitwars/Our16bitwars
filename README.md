@@ -2,7 +2,7 @@
 
 
 My gng 🥹
-@Kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy ♡ - 23.11
+@kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy - 23.11
 
 
 
