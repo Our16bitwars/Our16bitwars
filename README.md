@@ -1,4 +1,6 @@
-![IMG_2031](https://github.com/user-attachments/assets/6888f647-27df-4928-bcdc-d086de5b5437) ![IMG_2032](https://github.com/user-attachments/assets/3e43cc7c-5b9a-44b1-82cd-074f4fba865f)![IMG_2033](https://github.com/user-attachments/assets/888b8023-d887-4fef-ac7f-1e72ae1391c2)![IMG_2034](https://github.com/user-attachments/assets/b0dde07f-7be8-49d0-afa3-7262527fb2a3)
+![IMG_2031](https://github.com/user-attachments/assets/6888f647-27df-4928-bcdc-d086de5b5437) ![IMG_2032](https://github.com/user-attachments/assets/3e43cc7c-5b9a-44b1-82cd-074f4fba865f)![IMG_2033](https://github.com/user-attachments/assets/888b8023-d887-4fef-ac7f-1e72ae1391c2)![IMG_2034](https://github.com/user-attachments/assets/b0dde07f-7be8-49d0-afa3-7262527fb2a3)![IMG_2037](https://github.com/user-attachments/assets/b995271f-f30d-4049-944f-22d87be8c36b)![IMG_2038](https://github.com/user-attachments/assets/841006f6-1e40-40c0-898b-45ce419dbdc6)
+
+
 
 
 
@@ -11,7 +13,7 @@
 
 
 My gng 🥹
-@kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy - 23.11
+@kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy - 22.11
 
 
 
