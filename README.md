@@ -13,7 +13,7 @@
 
 
 My gng 🥹
-@kkaitoshion , @VULTUR3S , Miyu , @Yuri-Ful , izzy, @souilove- 22.11
+@kkaitoshion , @VULTUR3S , Miyu , @prisioner004 , izzy, @souilove- 22.11
 
 
 
