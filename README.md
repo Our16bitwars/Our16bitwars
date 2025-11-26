@@ -24,9 +24,4 @@ Wip in progress!
 
 
 
-<img width="1000" height="500" alt="Untitled235_20251126184022" src="https://github.com/user-attachments/assets/84ea0e75-bc7d-4495-8f0b-cf7fd8f0f2e2" />
-
-
-
-
-
+<img width="1000" height="500" alt="Untitled235_20251126184729" src="https://github.com/user-attachments/assets/a785962c-8e48-49e1-9231-16f3154d5508" />
