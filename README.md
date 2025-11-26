@@ -11,7 +11,7 @@ Wip in progress!
 
 ![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
