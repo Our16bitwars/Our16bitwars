@@ -1,5 +1,24 @@
 <img width="1000" height="500" alt="Untitled235_20251126182124" src="https://github.com/user-attachments/assets/ab9d5c66-9933-44cb-8b7d-d3b26de6d30c" />
-WIP IN PROGRESS!!
+
+Wip in progress!
+
+
+
+
+
+
+
+![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)
+
+
+
+
+
+
+
+
+
+
 
 
 
