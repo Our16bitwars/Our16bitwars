@@ -23,7 +23,7 @@ My gang... Teehehe
 
 
 
-![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei+is+coming+closer)
+![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Astraea)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=d9c3c9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
