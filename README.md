@@ -1,4 +1,5 @@
-<img width="1000" height="500" alt="Untitled235_20251126182124" src="https://github.com/user-attachments/assets/ab9d5c66-9933-44cb-8b7d-d3b26de6d30c" />
+<img width="1000" height="500" alt="Untitled235_20251126183124" src="https://github.com/user-attachments/assets/036124f1-8019-427a-a54c-116cb9a0af3c" />
+
 
 Wip in progress!
 
@@ -22,8 +23,8 @@ Wip in progress!
 
 
 
-<img width="1000" height="500" alt="Untitled235_20251126182234" src="https://github.com/user-attachments/assets/be571cbc-b915-43a0-9fa6-282a437ed3a2" />
 
+<img width="1000" height="500" alt="Untitled235_20251126184022" src="https://github.com/user-attachments/assets/84ea0e75-bc7d-4495-8f0b-cf7fd8f0f2e2" />
 
 
 
