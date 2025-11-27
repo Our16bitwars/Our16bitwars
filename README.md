@@ -13,9 +13,11 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)
+![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)![GIF image](https://github.com/user-attachments/assets/fa9c169c-38f2-4626-a5e9-434010698a3a)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![GIF image](https://github.com/user-attachments/assets/c2b28a42-ecc4-498f-8b7b-3c3465834622)
+
 
 
 ★
@@ -29,6 +31,7 @@
 ![IMG_2033](https://github.com/user-attachments/assets/5a5243ca-0ac9-4fdf-81bd-f5228852beac)
 ![IMG_2032](https://github.com/user-attachments/assets/5001ea74-721b-46bf-aaa3-6a473bef6a1d)
 ![IMG_2031](https://github.com/user-attachments/assets/454657a8-1954-4dc0-a897-78098f8d42a9)
+
 
 
 
