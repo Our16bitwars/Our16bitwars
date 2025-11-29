@@ -35,5 +35,9 @@
 ![GIF image](https://github.com/user-attachments/assets/5ea49c2e-4ec6-4ed0-b700-2e63e85e1a5f)
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+stars+shine+in+the+night;+Adachi+Rei+haunt+n25+in+The+wind;oh+such+painful+ending+for+niigo)](https://git.io/typing-svg) ★
+
+
+
 
 <img width="1000" height="500" alt="Untitled235_20251127221008" src="https://github.com/user-attachments/assets/d9d77ed4-b9b8-47df-a3e0-4175f91f61b1" />
