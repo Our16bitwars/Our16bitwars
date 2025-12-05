@@ -8,11 +8,7 @@
 [𝑴𝒚 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒊𝒏𝒈 // 𝑴𝒚 𝒐𝒍𝒅𝒆𝒓 𝒔𝒊𝒔𝒕𝒆𝒓 <𝟑 .𖥔 ݁](https://github.com/liminalheaven)![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/7afcc495-8378-49b9-b6d9-2ae3f0b28eda)
 
 ★
-[𝒎𝒚 𝒐𝒕𝒉𝒆𝒓 𝒃𝒇𝒇 :3](https://github.com/Rxmas1lly)![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/db6d4884-434e-43d4-8ec3-916d37f07600)
-
-
-
-
+[𝒎𝒚 𝒃𝒇𝒇 4 𝒍𝒊𝒇𝒆 :3](https://github.com/Rxmas1lly)![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/db6d4884-434e-43d4-8ec3-916d37f07600)
 
 
 ![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)![GIF image](https://github.com/user-attachments/assets/fa9c169c-38f2-4626-a5e9-434010698a3a)
