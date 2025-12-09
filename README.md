@@ -3,6 +3,9 @@
 
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
+☆ ["𝑶𝒉..? 𝒔𝒖𝒄𝒉 𝒂𝒏 𝒂𝒃𝒏𝒐𝒓𝒎𝒂𝒍 𝒉𝒆𝒂𝒕..."](https://youtu.be/b2NTglk9tvI?si=n3iZEC-jyjCjkFhd)
+
+
 
 ★
 [𝑴𝒚 𝒆𝒗𝒆𝒓𝒚𝒕𝒉𝒊𝒏𝒈 // 𝑴𝒚 𝒐𝒍𝒅𝒆𝒓 𝒔𝒊𝒔𝒕𝒆𝒓 <𝟑 .𖥔 ݁](https://github.com/liminalheaven)![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/7afcc495-8378-49b9-b6d9-2ae3f0b28eda)
@@ -29,11 +32,6 @@
 
 
 ![GIF image](https://github.com/user-attachments/assets/5ea49c2e-4ec6-4ed0-b700-2e63e85e1a5f)
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=The+stars+shine+in+the+night;+Adachi+Rei+haunt+n25+in+The+wind;oh+such+painful+ending+for+niigo)](https://git.io/typing-svg) ★
-
-
 
 
 <img width="1000" height="500" alt="Untitled235_20251127221008" src="https://github.com/user-attachments/assets/d9d77ed4-b9b8-47df-a3e0-4175f91f61b1" />
