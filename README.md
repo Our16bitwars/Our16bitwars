@@ -7,7 +7,7 @@
 ☆[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsshootingatstars.straw.page/)
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
-
+[ɪʙɪs ᴘᴀɪɴᴛ](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 
 ☆ ["𝑶𝒉..? 𝒔𝒖𝒄𝒉 𝒂𝒏 𝒂𝒃𝒏𝒐𝒓𝒎𝒂𝒍 𝒉𝒆𝒂𝒕..."](https://youtu.be/b2NTglk9tvI?si=n3iZEC-jyjCjkFhd)
 
@@ -26,15 +26,8 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![GIF image](https://github.com/user-attachments/assets/c2b28a42-ecc4-498f-8b7b-3c3465834622)
 
 
-
 ★
 
-
-
-
-
 ![GIF画像](https://github.com/user-attachments/assets/5d88dbc8-d599-430e-9daf-5777a541d913)
-
-
 
 <img width="1000" height="500" alt="Untitled235_20251127221008" src="https://github.com/user-attachments/assets/d9d77ed4-b9b8-47df-a3e0-4175f91f61b1" />
