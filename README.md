@@ -6,6 +6,8 @@
 
 ☆[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsshootingatstars.straw.page/)
+[ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
+
 
 ☆ ["𝑶𝒉..? 𝒔𝒖𝒄𝒉 𝒂𝒏 𝒂𝒃𝒏𝒐𝒓𝒎𝒂𝒍 𝒉𝒆𝒂𝒕..."](https://youtu.be/b2NTglk9tvI?si=n3iZEC-jyjCjkFhd)
 
