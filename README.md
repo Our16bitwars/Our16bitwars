@@ -8,8 +8,9 @@
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsshootingatstars.straw.page/)
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
 [ɪʙɪs ᴘᴀɪɴᴛ](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
-[ɢɪғᴛᴇᴅ ʀᴇɴᴛʀʏ ʙʏ ʜᴀɴᴀ](https://rentry.co/adachiyo)
+[ɢɪғᴛᴇᴅ ʀᴇɴᴛʀʏ](https://rentry.co/adachiyo)
 [ɢᴜɴs.ʟᴏʟ](https://guns.lol/troopstainedend)
+[ᴏʟᴅ ʀᴇɴᴛʀʏ](https://rentry.co/alltheblackstarsarelookingatme)
 
 ☆ ["𝑶𝒉..? 𝒔𝒖𝒄𝒉 𝒂𝒏 𝒂𝒃𝒏𝒐𝒓𝒎𝒂𝒍 𝒉𝒆𝒂𝒕..."](https://youtu.be/b2NTglk9tvI?si=n3iZEC-jyjCjkFhd)
 
