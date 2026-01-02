@@ -4,8 +4,10 @@
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
 
-☆[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
-[sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsshootingatstars.straw.page/)
+
+☆[ɴᴇᴡ sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
+[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
+[ᴏʟᴅ sᴛʀᴀᴡᴘᴀɢᴇ, ᴜsᴇ ᴍʏ ɴᴇᴡᴇʀ ᴏɴᴇ.](https://troopsshootingatstars.straw.page/)
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
 [ɪʙɪs ᴘᴀɪɴᴛ](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 [ɢɪғᴛᴇᴅ ʀᴇɴᴛʀʏ](https://rentry.co/adachiyo)
