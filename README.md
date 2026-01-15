@@ -7,7 +7,6 @@
 
 ☆[ɴᴇᴡ sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
 [ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
-[ᴏʟᴅ sᴛʀᴀᴡᴘᴀɢᴇ, ᴜsᴇ ᴍʏ ɴᴇᴡᴇʀ ᴏɴᴇ.](https://troopsshootingatstars.straw.page/)
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
 [ɪʙɪs ᴘᴀɪɴᴛ](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
 [ɢɪғᴛᴇᴅ ʀᴇɴᴛʀʏ](https://rentry.co/adachiyo)
