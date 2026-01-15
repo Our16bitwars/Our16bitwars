@@ -5,11 +5,16 @@
 
 
 
-☆[sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
+[sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
+✶
 [ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
+✶
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
+✶
 [ɪʙɪs ᴘᴀɪɴᴛ](https://ibispaint.com/artist3/1989259252181890824/?type=illust&sort=new)
+✶
 [ʀᴇɴᴛʀʏ](https://rentry.co/adachiyo)
+✶
 [ɢᴜɴs.ʟᴏʟ](https://guns.lol/troopstainedend)
 
 
