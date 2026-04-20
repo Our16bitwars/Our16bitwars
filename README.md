@@ -5,8 +5,18 @@
 
 Hi. I'll explain why i went inactive:
 so firstly my mom found out about my pinterest and grounded me
+
+
 Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀𝘾𝘼 𝙙𝙞𝙜𝙞𝙩𝙖𝙡" which i can't acess pinterest or ponytown w/o age verification.
-(ps: rosa if ur reading this i hope u dont hate me for vanishing okay. ? even if u hate me i love you alot)
+
+
+(ps: rosa if ur reading this i hope u dont hate me for vanishing okay. ? even if u hate me i love you. I'll always love u even if u hate me im so sorry)
+
+
+(Kim if ur reading this then ilysm)
+
+
+(rams if u see this i love u and im back)
 
 
 
