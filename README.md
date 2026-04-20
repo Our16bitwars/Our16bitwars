@@ -3,6 +3,13 @@
 <img width="1000" height="500" alt="Untitled235_20251126183124" src="https://github.com/user-attachments/assets/036124f1-8019-427a-a54c-116cb9a0af3c" />
 
 
+Hi. I'll explain why i went inactive:
+so firstly my mom found out about my pinterest and grounded me
+Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀𝘾𝘼 𝙙𝙞𝙜𝙞𝙩𝙖𝙡" which i can't acess pinterest or ponytown w/o age verification.
+(ps: rosa if ur reading this i hope u dont hate me for vanishing okay. ? even if u hate me i love you alot)
+
+
+
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
 
