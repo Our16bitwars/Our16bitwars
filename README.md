@@ -19,6 +19,8 @@ Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀�
 (rams if u see this i love u and im back)
 
 
+20.04٫ I'm back <3
+
 
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
