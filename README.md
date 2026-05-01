@@ -61,4 +61,4 @@ Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀�
 𝑴𝒚 𝑺𝒕𝒂𝒓𝒔 <3 
 ![IMG_2425](https://github.com/user-attachments/assets/c5332802-2dff-4ced-876c-16d92c8f0b4d)
 
-
+<img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/1e912d38-1a1c-4207-bde1-782ffe495ff6" />
