@@ -28,7 +28,7 @@ Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀�
 
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
 ✶
-[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@Our16bitwars)
+[ᴘʀᴏɴᴏᴜɴs](https://en.pronouns.page/@DoctorFunkbeat)
 ✶
 [ᴘɪɴ](https://br.pinterest.com/TroopsShootingAtStars/)
 ✶
