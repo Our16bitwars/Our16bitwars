@@ -1,6 +1,5 @@
+<img width="1000" height="500" alt="Untitled252_20260501195006" src="https://github.com/user-attachments/assets/a741c8e0-3a1d-4752-9d2c-f7049fa8d4d7" />
 
-
-<img width="1000" height="500" alt="Untitled235_20251126183124" src="https://github.com/user-attachments/assets/036124f1-8019-427a-a54c-116cb9a0af3c" />
 
 
 Hi. I'll explain why i went inactive:
