@@ -49,7 +49,7 @@ Secondly theres a law in brazil called "𝙇𝙚𝙞 𝙁𝙚𝙡𝙘𝙖/𝙀�
 [𝒎𝒚 𝒃𝒇𝒇 // 𝒃𝒓𝒐𝒕𝒉𝒆𝒓 :3](https://github.com/Rxmas1lly)![68747470733a2f2f66696c65732e636174626f782e6d6f652f796e6175756d2e77656270](https://github.com/user-attachments/assets/db6d4884-434e-43d4-8ec3-916d37f07600)
 
 
-![](https://komarev.com/ghpvc/?username=Our16bitwars&label=Adachi+Rei)![GIF image](https://github.com/user-attachments/assets/fa9c169c-38f2-4626-a5e9-434010698a3a)
+![](https://komarev.com/ghpvc/?username=DoctorFunkbeat&label=Daitensai)![GIF image](https://github.com/user-attachments/assets/fa9c169c-38f2-4626-a5e9-434010698a3a)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![GIF image](https://github.com/user-attachments/assets/c2b28a42-ecc4-498f-8b7b-3c3465834622)
