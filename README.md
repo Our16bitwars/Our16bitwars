@@ -20,8 +20,6 @@
 [ɢᴜɴs.ʟᴏʟ](https://guns.lol/troopstainedend)
 
 
-☆ ["𝑶𝒉..? 𝒔𝒖𝒄𝒉 𝒂𝒏 𝒂𝒃𝒏𝒐𝒓𝒎𝒂𝒍 𝒉𝒆𝒂𝒕..."](https://youtu.be/b2NTglk9tvI?si=n3iZEC-jyjCjkFhd)
-
 
 
 ★
