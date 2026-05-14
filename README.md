@@ -42,7 +42,8 @@
 𝑴𝒚 𝑺𝒕𝒂𝒓𝒔 <3 
 ![IMG_2425](https://github.com/user-attachments/assets/c5332802-2dff-4ced-876c-16d92c8f0b4d)
 
-<img width="1079" height="798" alt="IMG_4155" src="https://github.com/user-attachments/assets/6d119280-e680-4e36-aae0-d4473189383d" />
+<img width="562" height="531" alt="IMG_4313" src="https://github.com/user-attachments/assets/d3892def-4064-4b3c-8497-0080078c2584" />
+
 
 
 <img width="1000" height="500" alt="image" src="https://github.com/user-attachments/assets/1e912d38-1a1c-4207-bde1-782ffe495ff6" />
