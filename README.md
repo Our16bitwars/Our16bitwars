@@ -32,7 +32,7 @@
 ![](https://komarev.com/ghpvc/?username=DoctorFunkbeat&label=Daitensai)![GIF image](https://github.com/user-attachments/assets/fa9c169c-38f2-4626-a5e9-434010698a3a)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=e38564&interchange=false&profanity=false&bar_color=e38564&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)![GIF image](https://github.com/user-attachments/assets/c2b28a42-ecc4-498f-8b7b-3c3465834622)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=44562a&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 <img width="250" height="250" alt="IMG_3920" src="https://github.com/user-attachments/assets/103c8ffe-fb90-4097-a918-c6a977b183c6" />
