@@ -6,6 +6,9 @@
 ![GIF image](https://github.com/user-attachments/assets/07d15c3c-b390-43a5-bdbd-9b9dfd7e4990)
 
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=STARBORN&pause=500&color=0E3F12&width=999&separator=%3C&lines=you+think+i+welcome+you%3F+fuck+you!%3Ca+call+for+me%3F+(yes+my+doctor!)%3Ca+call+for+me%3F+(yes+my+doctor!)%3Ccarelessly%D9%AB+even+tonight+maximumly+wonderful+this+great!%3CGreat!+great!+great!+great+genius!%3C(Get+on!)%3CDoctor%3DFunk+Beat!%3Ci+had+a+dream...%3CWhere+everyone+became+happy%D9%AB+a+childish+transparent+delusion+SHOW%3CEveryone+is+unhappy+within+that+messed+up+dystopia...%3CThere%D9%AB+this+%5BThe+whereabouts+of+happiness(cloud+nine)%5D+being+stingy+is+nonsense%3CCome+on+now%D9%AB+you%D9%AB+and+you%D9%AB+and+you...+Let's+pass+on+with+this...%3CTrapped+princess+it's+finally+your+turn%D9%AB+Oh!!+i+should+have+said+earlier...%3CHello%3F+hello%3F+if+You+want+to+become+happy+then+head+to+the+name+that+everyone+gives+praise+to;%3Cthat+is;+%22Doctor%3Dfunk+beat%22!%3CA+great+genius!+(a+great+genius!)%3CMay+you+find+happiness)](https://git.io/typing-svg)
+
+
 
 [sᴛʀᴀᴡᴘᴀɢᴇ](https://troopsstainedsanity.straw.page/)
 ✶
